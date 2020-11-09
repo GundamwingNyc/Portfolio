@@ -8,3 +8,8 @@ Selected photos from various locations of various moments
 
 Fashion
 A bomber jacket 
+
+
+about
+contact us
+social media
